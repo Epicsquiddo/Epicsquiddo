@@ -1,4 +1,11 @@
-### Hi there 👋
+### Hiiii! I'm Wisp AKA the #1 spaghetti hater! (spaghetti likers DNI /j) 
+I'm usually using the Do Not Disturb status- but i'm almost always online!  //                                                                                                                         please do not copy or take inspo from my skins, i work very hard on them (most of the time) // 
+feel free to interact (unless you're gonna start drama or smth) //
+usually hanging out with my besties (shoutout to them i can't be bothered to list them all)
+if you decide to randomly annoy them i will start being incredibly annoying back // DNI if you're a racist, sexist, homophobe, etc
+
+
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/a80e8b33-9bf0-4c4f-92ae-5dacbaff5c7a)
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

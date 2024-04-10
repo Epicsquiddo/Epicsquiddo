@@ -6,6 +6,7 @@ if you decide to randomly annoy them i will start being incredibly annoying back
 
 
 ![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/a80e8b33-9bf0-4c4f-92ae-5dacbaff5c7a)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/1f51a63a-4233-4e98-935c-113869d30673)
 
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

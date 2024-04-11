@@ -6,6 +6,8 @@ feel free to interact (unless you're gonna start drama or smth) //
 usually hanging out with my besties (shoutout to them i can't be bothered to list them all)
 if you decide to randomly annoy them i will start being incredibly annoying back // DNI if you're a racist, sexist, homophobe, etc *ೃ༄
 
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/f1985a6c-58fe-4ff2-92a1-c5874f1c23a7)
+
 
 
 

@@ -1,10 +1,10 @@
-### Hiiii! I'm Wisp AKA the #1 spaghetti hater! (spaghetti likers DNI /j) ༊*·˚
+### ʜɪɪɪɪ! ɪ'ᴍ ᴡɪꜱᴘ ᴀᴋᴀ ᴛʜᴇ #1 ꜱᴘᴀɢʜᴇᴛᴛɪ ʜᴀᴛᴇʀ! (ꜱᴘᴀɢʜᴇᴛᴛɪ ʟɪᴋᴇʀꜱ ᴅɴɪ /ᴊ) ༊*·˚
 ![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/71ffaded-9d58-4d67-91fe-aa2923327450)
 
-*ೃ I'm usually using the Do Not Disturb status or offtab, whisper for my attention ig  //                                                                                                                         please do not copy or take inspo from my skins, i work very hard on them (most of the time) // 
-feel free to interact (unless you're gonna start drama or smth) //
-usually hanging out with my besties (shoutout to them i can't be bothered to list them all)
-// please note that i have social anxiety and get very stressed around ppl i don't know // DNI if you're a racist, sexist, homophobe, etc *ೃ༄
+*ೃ ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ᴜꜱɪɴɢ ᴛʜᴇ ᴅᴏ ɴᴏᴛ ᴅɪꜱᴛᴜʀʙ ꜱᴛᴀᴛᴜꜱ ᴏʀ ᴏꜰꜰᴛᴀʙ, ᴡʜɪꜱᴘᴇʀ ꜰᴏʀ ᴍʏ ᴀᴛᴛᴇɴᴛɪᴏɴ ɪɢ  //                                                                                                                         ᴘʟᴇᴀꜱᴇ ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ ᴏʀ ᴛᴀᴋᴇ ɪɴꜱᴘᴏ ꜰʀᴏᴍ ᴍʏ ꜱᴋɪɴꜱ, ɪ ᴡᴏʀᴋ ᴠᴇʀʏ ʜᴀʀᴅ ᴏɴ ᴛʜᴇᴍ (ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ) // 
+ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ (ᴜɴʟᴇꜱꜱ ʏᴏᴜ'ʀᴇ ɢᴏɴɴᴀ ꜱᴛᴀʀᴛ ᴅʀᴀᴍᴀ ᴏʀ ꜱᴍᴛʜ) //
+ᴜꜱᴜᴀʟʟʏ ʜᴀɴɢɪɴɢ ᴏᴜᴛ ᴡɪᴛʜ ᴍʏ ʙᴇꜱᴛɪᴇꜱ (ꜱʜᴏᴜᴛᴏᴜᴛ ᴛᴏ ᴛʜᴇᴍ ɪ ᴄᴀɴ'ᴛ ʙᴇ ʙᴏᴛʜᴇʀᴇᴅ ᴛᴏ ʟɪꜱᴛ ᴛʜᴇᴍ ᴀʟʟ)
+// ᴘʟᴇᴀꜱᴇ ɴᴏᴛᴇ ᴛʜᴀᴛ ɪ ʜᴀᴠᴇ ꜱᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ ᴀɴᴅ ɢᴇᴛ ᴠᴇʀʏ ꜱᴛʀᴇꜱꜱᴇᴅ ᴀʀᴏᴜɴᴅ ᴘᴘʟ ɪ ᴅᴏɴ'ᴛ ᴋɴᴏᴡ // ᴅɴɪ ɪꜰ ʏᴏᴜ'ʀᴇ ᴀ ʀᴀᴄɪꜱᴛ, ꜱᴇxɪꜱᴛ, ʜᴏᴍᴏᴘʜᴏʙᴇ, ᴇᴛᴄ *ೃ༄
 
 ![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/f1985a6c-58fe-4ff2-92a1-c5874f1c23a7)
 

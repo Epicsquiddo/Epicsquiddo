@@ -4,7 +4,7 @@
 *ೃ I'm usually using the Do Not Disturb status or offtab, whisper for my attention ig  //                                                                                                                         please do not copy or take inspo from my skins, i work very hard on them (most of the time) // 
 feel free to interact (unless you're gonna start drama or smth) //
 usually hanging out with my besties (shoutout to them i can't be bothered to list them all)
-if you decide to randomly annoy them i will start being incredibly annoying back // DNI if you're a racist, sexist, homophobe, etc *ೃ༄
+// please note that i have social anxiety and get very stressed around ppl i don't know // DNI if you're a racist, sexist, homophobe, etc *ೃ༄
 
 ![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/f1985a6c-58fe-4ff2-92a1-c5874f1c23a7)
 

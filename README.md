@@ -20,6 +20,7 @@
 - ᴄᴀᴠᴇᴛᴏᴡɴ
 - ᴀᴜʀᴏʀᴀ
 - ʙᴜɢꜱɴᴀx
+- murder drones
 
 ![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/bf0ae425-957f-4121-a0ca-f60c0d525eee)
 

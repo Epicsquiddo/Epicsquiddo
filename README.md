@@ -1,4 +1,4 @@
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/34933d11-8e68-4654-a683-235786f397b7)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/9570ee14-1484-4e24-aaa5-7c1250e7d4f7)
 
 
 
@@ -6,7 +6,7 @@
 - ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ᴏꜰꜰᴛᴀʙ ᴏʀ ʙᴜꜱʏ, ᴡʜɪꜱᴘᴇʀ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ɴᴇᴄᴇꜱꜱᴀʀʏ
 - ᴡʜᴇɴ ɪ ᴀᴍ ᴀᴄᴛɪᴠᴇ ɪ'ᴍ ᴇɪᴛʜᴇʀ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟɪɴɢ, ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ᴍᴀᴋᴇ ᴀɴʏᴏɴᴇ ɪ'ᴍ ʜᴀɴɢɪɴɢ ᴏᴜᴛ ᴡɪᴛʜ ꜰᴇᴇʟ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ɪꜰ ʏᴏᴜ ᴅᴇᴄɪᴅᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/b7169125-cdd8-44af-9912-fd03979b4180)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/93a9e684-3a0c-4137-bfd5-9a02352b3bd2)
 
 - ɪ ᴄᴀɴ ᴜꜱᴜᴀʟʟʏ ʙᴇ ꜰᴏᴜɴᴅ ᴀᴛ ᴛʜᴇ ꜰɴᴀꜰ, ꜱᴘʟᴀᴛᴏᴏɴ, ᴏʀ ꜱᴏɴɪᴄ ᴀʀᴇᴀ ʙᴜᴛ ɪ ᴍɪɢʜᴛ ʙᴇ ꜱᴏᴍᴇᴡʜᴇʀᴇ ᴇʟꜱᴇ ɪꜰ ɪ ɢᴇᴛ ʙᴏʀᴇᴅ
 - ɪ ʟᴏᴠᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ ᴛʜᴇ ꜱᴀᴍᴇ ɪɴᴛᴇʀᴇꜱᴛꜱ ᴀꜱ ᴍᴇ ꜱᴏ ᴘʟᴇᴇᴀꜱᴇᴇᴇ ɪɴᴛ ɪꜰ ʏᴏᴜ'ʀᴇ ᴀ ꜰᴀɴ ᴏꜰ:
@@ -22,15 +22,16 @@
 - ʙᴜɢꜱɴᴀx
 - murder drones
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/30e7a644-9f38-49d6-a0e0-2c7ed547c965)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/a987db4d-fea5-4fda-825f-d4de6d2037ea)
 
 ~ ʀᴀɴᴅᴏᴍ ꜰᴀᴄᴛꜱ!! ~
 1. ɪ ʜᴀᴠᴇ ꜱᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ
 2. ᴍʏ ᴄᴜʀʀᴇɴᴛ ʜʏᴘᴇʀꜰɪxᴀᴛɪᴏɴ ɪꜱ: ʜᴏʟʟᴏᴡ ᴋɴɪɢʜᴛ!!
 3. ɪ ᴀʟꜱᴏ ʜᴀᴠᴇ ꜱᴇɴꜱᴏʀʏ ɪꜱꜱᴜᴇꜱ ᴀɴᴅ ʜᴀᴠᴇ ᴀ ʟᴀʀɢᴇ ʟɪꜱᴛ ᴏꜰ ꜰᴏᴏᴅꜱ ɪ ᴅᴏ ɴᴏᴛ ʟɪᴋᴇ ʙᴇᴄᴀᴜꜱᴇ ᴏꜰ ᴛᴇxᴛᴜʀᴇ ɴ ꜱᴛᴜꜰꜰ
 4. ɪ'ᴍ ʙʀɪᴛɪꜱʜ...
-
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/5bd516fd-f902-4e46-ba62-1505549a9ece)
+5. ɪ ʀᴇᴀʟʟʏ ʟɪᴋᴇ ʙᴜɢꜱ
+   
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/ac106f96-8bcc-4fe6-857a-b3a06dc31579)
 
 (ᴇxᴛʀᴇᴍᴇʟʏ ʙᴀꜱɪᴄ ᴀɴᴅ ʟᴏɴɢ) ᴅɴɪ ʟɪꜱᴛ! 
 - ʀᴀᴄɪꜱᴛꜱ, ꜱᴇxɪꜱᴛꜱ, ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ᴇᴛᴄ.

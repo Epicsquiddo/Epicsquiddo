@@ -31,7 +31,7 @@
 4. ɪ'ᴍ ʙʀɪᴛɪꜱʜ...
 5. ɪ ʀᴇᴀʟʟʏ ʟɪᴋᴇ ʙᴜɢꜱ
    
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/ac106f96-8bcc-4fe6-857a-b3a06dc31579)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/aa4d38a2-9a15-4737-940d-7390cc049532)
 
 (ᴇxᴛʀᴇᴍᴇʟʏ ʙᴀꜱɪᴄ ᴀɴᴅ ʟᴏɴɢ) ᴅɴɪ ʟɪꜱᴛ! 
 - ʀᴀᴄɪꜱᴛꜱ, ꜱᴇxɪꜱᴛꜱ, ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ᴇᴛᴄ.

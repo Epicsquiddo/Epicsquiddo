@@ -1,4 +1,4 @@
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/8c65a170-10fe-444e-8f69-d4cbbe8a50b8)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/d27f13cf-9894-4c7c-bc16-60c462250d14)
 
 
 
@@ -6,7 +6,7 @@
 - ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ᴏꜰꜰᴛᴀʙ ᴏʀ ʙᴜꜱʏ, ᴡʜɪꜱᴘᴇʀ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ɴᴇᴄᴇꜱꜱᴀʀʏ
 - ᴡʜᴇɴ ɪ ᴀᴍ ᴀᴄᴛɪᴠᴇ ɪ'ᴍ ᴇɪᴛʜᴇʀ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟɪɴɢ, ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ᴍᴀᴋᴇ ᴀɴʏᴏɴᴇ ɪ'ᴍ ʜᴀɴɢɪɴɢ ᴏᴜᴛ ᴡɪᴛʜ ꜰᴇᴇʟ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ɪꜰ ʏᴏᴜ ᴅᴇᴄɪᴅᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/e1b76a92-b330-4555-8486-104759011dd5)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/970c423a-fff5-4f4a-a9ff-cf6207b4a259)
 
 - ɪ ᴄᴀɴ ᴜꜱᴜᴀʟʟʏ ʙᴇ ꜰᴏᴜɴᴅ ᴀᴛ ᴛʜᴇ ꜰɴᴀꜰ, ꜱᴘʟᴀᴛᴏᴏɴ, ᴏʀ ꜱᴏɴɪᴄ ᴀʀᴇᴀ ʙᴜᴛ ɪ ᴍɪɢʜᴛ ʙᴇ ꜱᴏᴍᴇᴡʜᴇʀᴇ ᴇʟꜱᴇ ɪꜰ ɪ ɢᴇᴛ ʙᴏʀᴇᴅ
 - ɪ ʟᴏᴠᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ ᴛʜᴇ ꜱᴀᴍᴇ ɪɴᴛᴇʀᴇꜱᴛꜱ ᴀꜱ ᴍᴇ ꜱᴏ ᴘʟᴇᴇᴀꜱᴇᴇᴇ ɪɴᴛ ɪꜰ ʏᴏᴜ'ʀᴇ ᴀ ꜰᴀɴ ᴏꜰ:
@@ -20,16 +20,15 @@
 - ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ
 - ꜱᴋʏ ᴄᴏᴛʟ
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/11a87979-3b7a-426b-ba3d-f8d5fc4d56f5)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/6d3f231f-bc4a-4a85-85a1-3d2a24b18e45)
 
 ~ ʀᴀɴᴅᴏᴍ ꜰᴀᴄᴛꜱ!! ~
 1. ɪ ʜᴀᴠᴇ ꜱᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ
 2. ᴍʏ ᴄᴜʀʀᴇɴᴛ ʜʏᴘᴇʀꜰɪxᴀᴛɪᴏɴ ɪꜱ: ʜᴏʟʟᴏᴡ ᴋɴɪɢʜᴛ!!
 3. ɪ ᴀʟꜱᴏ ʜᴀᴠᴇ ꜱᴇɴꜱᴏʀʏ ɪꜱꜱᴜᴇꜱ ᴀɴᴅ ʜᴀᴠᴇ ᴀ ʟᴀʀɢᴇ ʟɪꜱᴛ ᴏꜰ ꜰᴏᴏᴅꜱ ɪ ᴅᴏ ɴᴏᴛ ʟɪᴋᴇ ʙᴇᴄᴀᴜꜱᴇ ᴏꜰ ᴛᴇxᴛᴜʀᴇ ɴ ꜱᴛᴜꜰꜰ
 4. ɪ'ᴍ ʙʀɪᴛɪꜱʜ...
-5. ɪ ʀᴇᴀʟʟʏ ʟɪᴋᴇ MOTHS
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/799f12da-5526-43cb-957f-5aca29d5e374)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/25e71fea-4b7f-4813-83a4-78fa6b6c6011)
 
 (ᴇxᴛʀᴇᴍᴇʟʏ ʙᴀꜱɪᴄ ᴀɴᴅ ʟᴏɴɢ) ᴅɴɪ ʟɪꜱᴛ! 
 - ʀᴀᴄɪꜱᴛꜱ, ꜱᴇxɪꜱᴛꜱ, ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ᴇᴛᴄ.

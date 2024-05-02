@@ -1,44 +1,30 @@
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/f8067a51-12a5-4ad5-a6cb-7ffea9971ac3)
+HOI!! i'm wisp :p  anyway this is my pRoFiLe!!! 🐈
 
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/ae13238a-53fd-4dcb-8348-adafb4c396c9)
 
+✩ i'm usuallyyy in the safe server in ponytown 💿
 
-~ ʜɪ ᴛʜᴇʀᴇ, ɪ'ᴍ ᴡɪꜱᴘ ᴀɴᴅ ɪ'ᴍ ᴜꜱɪɴɢ ᴛʜɪꜱ ᴘᴀɢᴇ ꜰᴏʀ ᴍʏ ᴘᴏɴʏᴛᴏᴡɴ ɪɴꜰᴏ ɴ ꜱᴛᴜꜰꜰ
-- ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ᴏꜰꜰᴛᴀʙ ᴏʀ ʙᴜꜱʏ, ᴡʜɪꜱᴘᴇʀ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ɴᴇᴄᴇꜱꜱᴀʀʏ
-- ᴡʜᴇɴ ɪ ᴀᴍ ᴀᴄᴛɪᴠᴇ ɪ'ᴍ ᴇɪᴛʜᴇʀ ᴡɪᴛʜ ꜰʀɪᴇɴᴅꜱ ᴏʀ ᴊᴜꜱᴛ ᴄʜɪʟʟɪɴɢ, ᴘʟᴇᴀꜱᴇ ᴅᴏɴ'ᴛ ᴍᴀᴋᴇ ᴀɴʏᴏɴᴇ ɪ'ᴍ ʜᴀɴɢɪɴɢ ᴏᴜᴛ ᴡɪᴛʜ ꜰᴇᴇʟ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ɪꜰ ʏᴏᴜ ᴅᴇᴄɪᴅᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ
+✩ i also usually hang out at:
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/b81aacda-dd3a-45ea-8a2f-286802c55352)
+- the undertale spot :3 
 
-- ɪ ᴄᴀɴ ᴜꜱᴜᴀʟʟʏ ʙᴇ ꜰᴏᴜɴᴅ ᴀᴛ ᴛʜᴇ ꜰɴᴀꜰ, ꜱᴘʟᴀᴛᴏᴏɴ, ᴏʀ ꜱᴏɴɪᴄ ᴀʀᴇᴀ ʙᴜᴛ ɪ ᴍɪɢʜᴛ ʙᴇ ꜱᴏᴍᴇᴡʜᴇʀᴇ ᴇʟꜱᴇ ɪꜰ ɪ ɢᴇᴛ ʙᴏʀᴇᴅ
-- ɪ ʟᴏᴠᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴘᴇᴏᴘʟᴇ ᴡɪᴛʜ ᴛʜᴇ ꜱᴀᴍᴇ ɪɴᴛᴇʀᴇꜱᴛꜱ ᴀꜱ ᴍᴇ ꜱᴏ ᴘʟᴇᴇᴀꜱᴇᴇᴇ ɪɴᴛ ɪꜰ ʏᴏᴜ'ʀᴇ ᴀ ꜰᴀɴ ᴏꜰ:
-- ᴀɴɪᴍᴀʟ ᴄʀᴏꜱꜱɪɴɢ
-- ꜱᴘʟᴀᴛᴏᴏɴ
-- ᴋɪʀʙʏ
-- ʜᴏʟʟᴏᴡ ᴋɴɪɢʜᴛ
-- ᴅᴇʟᴛᴀʀᴜɴᴇ/ᴜɴᴅᴇʀᴛᴀʟᴇ
-- ᴀᴜʀᴏʀᴀ
-- ʙᴜɢꜱɴᴀx
-- ᴍᴜʀᴅᴇʀ ᴅʀᴏɴᴇꜱ
-- ꜱᴋʏ ᴄᴏᴛʟ
+- the fnaf spot (with my friends) 🐻
 
-![Screenshot 2024-05-02 18 38 15](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/166cbb7a-7025-4e74-adcf-5be46356af3b)
+- the sonic spot (also with friends)
 
-~ ʀᴀɴᴅᴏᴍ ꜰᴀᴄᴛꜱ!! ~
-1. ɪ ʜᴀᴠᴇ ꜱᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ
-2. ᴍʏ ᴄᴜʀʀᴇɴᴛ ʜʏᴘᴇʀꜰɪxᴀᴛɪᴏɴ ɪꜱ: ᴜɴᴅᴇʀᴛᴀʟᴇ!!
-3. ɪ ᴀʟꜱᴏ ʜᴀᴠᴇ ꜱᴇɴꜱᴏʀʏ ɪꜱꜱᴜᴇꜱ ᴀɴᴅ ʜᴀᴠᴇ ᴀ ʟᴀʀɢᴇ ʟɪꜱᴛ ᴏꜰ ꜰᴏᴏᴅꜱ ɪ ᴅᴏ ɴᴏᴛ ʟɪᴋᴇ ʙᴇᴄᴀᴜꜱᴇ ᴏꜰ ᴛᴇxᴛᴜʀᴇ ɴ ꜱᴛᴜꜰꜰ
-4. ɪ'ᴍ ʙʀɪᴛɪꜱʜ...
+- the splatoon spot (not that often anymore tho :p) 🦑
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/25e71fea-4b7f-4813-83a4-78fa6b6c6011)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/bad5c47f-c02c-4bf8-ac15-49498bca71f6)
 
-(ᴇxᴛʀᴇᴍᴇʟʏ ʙᴀꜱɪᴄ ᴀɴᴅ ʟᴏɴɢ) ᴅɴɪ ʟɪꜱᴛ! 
-- ʀᴀᴄɪꜱᴛꜱ, ꜱᴇxɪꜱᴛꜱ, ʜᴏᴍᴏᴘʜᴏʙᴇꜱ, ᴇᴛᴄ.
-- ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ
-- ꜰᴜᴊᴏꜱʜɪꜱ (ɪꜰ ᴛʜᴇʏ ᴇᴠᴇɴ ᴇxɪꜱᴛ ᴏɴ ᴘᴏɴʏᴛᴏᴡɴ)
-- ʀᴄᴛᴀ ᴘᴇᴏᴘʟᴇ
-- ꜱꜱꜱɴɪᴘᴇʀᴡᴏʟꜰ ꜰᴀɴꜱ
-- ᴢᴏᴏᴘʜɪʟᴇꜱ ᴀɴᴅ ᴏᴛʜᴇʀ ᴄʀᴇᴇᴘʏ ꜱʜɪᴛ
+✩ if i'm not busy, offtab or already hanging out with someone, feel free to interact!! i do have social anxiety though, so sometimes i might get a bit uncomfortable with being approached by others
 
-![Screenshot 2024-05-02 18 37 51](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/fd3b914d-d686-4c37-bf0f-adb0a65c554d)
+✩ as long as you're not gonna be rude, i'll be happy to talk to you :3 
+
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/d17e776f-f744-4c9f-ada7-f2daefa23fa8)
+
+○ i do like interacting with people, HOWEVER i do have boundaries!!
+
+○ Please DNI if you are: homophobic, transphobic, racist, ableist, MAP, an andrew tate fan or ANYTHING ELSE problematic
  
 <!--
 **Epicsquiddo/Epicsquiddo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

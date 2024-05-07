@@ -18,6 +18,7 @@ Hullo!! I'm Sprout 🌱
 - sexists
 - ableists
 - homophobes
+- DSMP fans
 - anything else problematic
 
  ![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/526598f9-dc9e-4e02-a9a6-ffa0c6f3e180)

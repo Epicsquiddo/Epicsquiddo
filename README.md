@@ -19,7 +19,8 @@ i'm using this for my ponytown info and shit so yeah here it is
 
 - I'm usually offtab, whisper for my attention if needed
 - i have social anxiety and might get stressed when people try to interact
-
+- i'm usually with friends while online
+- 
 ![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/1325ecfe-fd7c-475c-a92c-87fb1c0db4c0)
 
   alright here's the RANDOM STUFF I LIKE LIST!!

@@ -8,7 +8,7 @@
 - ɪ ʜᴀᴠᴇ ꜱᴏᴄɪᴀʟ ᴀɴxɪᴇᴛʏ ᴀɴᴅ ɢᴇᴛ ꜱᴛʀᴇꜱꜱᴇᴅ ᴀʀᴏᴜɴᴅ ᴘᴇᴏᴘʟᴇ
 - ɪ'ᴍ ᴜꜱᴜᴀʟʟʏ ᴏꜰꜰᴛᴀʙ/ᴀꜰᴋ
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/2417b499-a75b-4452-b2d6-8b9a5a797b24)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/61013bb2-62ef-4cc1-9a14-9bb4a40cbd31)
 
 ᴅɴɪ ɪꜰ ʏᴏᴜ'ʀᴇ ᴏᴠᴇʀ 18, ᴏʀ ᴀɴʏᴛʜɪɴɢ ʟɪᴋᴇ ᴀ ʀᴀᴄɪꜱᴛ, ꜱᴇxɪꜱᴛ, ʜᴏᴍᴏᴘʜᴏʙᴇ, ᴇᴛᴄ.
 
@@ -16,7 +16,7 @@
 
 ᴀʟꜱᴏ, ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ᴀᴄᴛ ᴄʀᴇᴇᴘʏ ᴀʀᴏᴜɴᴅ ᴍᴇ.
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/39654ea9-c279-4ac4-a197-90cef03ca18a)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/11aca3ae-e167-466a-8b08-fa53cfb4a552)
 
 ʀᴀɴᴅᴏᴍ ꜱᴛᴜꜰꜰ ɪ ʟɪᴋᴇ:
 

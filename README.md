@@ -1,5 +1,7 @@
 uh hi i'm rhythm, also known as the #1 spaghetti hater and little shit
 
+(everyone DNI, i hate yall /j)
+
 anyway, here's the stuff you need to know:
 
 - i have social anxiety and will probably be uncomfortable while interacting with new people

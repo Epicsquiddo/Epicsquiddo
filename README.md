@@ -1,19 +1,26 @@
-uh hi i'm rhythm, also known as the #1 spaghetti hater and little shit
+hey i'm rhythm. ❣️
+       
+Please read before interacting
 
-(everyone DNI, i hate yall /j)
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/ff7bf41b-26b5-45a9-b49a-75bae15c1df4)
 
-anyway, here's the stuff you need to know:
+DNI:
 
-- i have social anxiety and will probably be uncomfortable while interacting with new people
-- i'm usually hanging out with my friends while on ponytown, some of them might not want to be interacted with either, just respect boundaries if so.
-- i only speak english, sorry.
-- afk/offtab most of the time
-- i'm a minor, don't be creepy.
-- don't copy my skins please
+⭐ ableists, racists, etc.
 
-![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/261563af-4759-4713-8a18-5ac77f417504)
+⭐ DSMP fans
 
-Shoutout to the basement gang + the people who are keeping us in the basement!!!
+⭐ people over 18 unless i somehow know you.
+
+![image](https://github.com/Epicsquiddo/Epicsquiddo/assets/162918569/2c513292-07ec-426e-adb2-1afc8e9279f5)
+
+info:
+
+- i have social anxiety and possibly other stuff
+- i can be very obsessive over my interests 🌹
+- i don't like it when people say bad stuff about my fav characters
+- i'm usually offtab or hanging out with friends 💌
+- whisper to interact
 
 
 

@@ -1,13 +1,5 @@
-✰ - ❛ᴛᴏᴏ ʙɪɢ ᴛᴏ ꜰᴀɪʟʟʟʟʟʟ!!!/ly ❜  -  #1 spaghetti hater  -  ꜱ, ʜ, ᴍ >>>>> ʏᴏᴜ
-
-   : - ᜊ ᴛʜᴇʏ/them - NB - ᴀᴄᴇ - ʙɪʀᴏᴍᴀɴᴛɪᴄ
-
-![image](https://github.com/user-attachments/assets/11c1c5f5-1aef-4563-97cc-d7c4b5a94fea)
-
-★ ᴅɴɪ - over 18, "MAPS", racists, etc., dsmp fans.
-
-- : ɪɴᴛ - friends, people with similar interests, nice people ig.
-
+go to the strawpage heh
+https://imymemine.straw.page
 
 
 
